@@ -1,2 +1,4 @@
-# Brooklyn-and-Bailey-Skin-Care
+Brooklyn-and-Bailey-Skin-Care
 Brooklyn and Bailey Skin Care epitomizes a harmonious blend of beauty, science, and authenticity. 
+Founded by the dynamic identical twin duo, Brooklyn and Bailey McKnight, this skincare line transcends the conventional, offering a unique approach to achieving radiant, healthy skin. With a commitment to clean beauty, their products are formulated without harmful additives, aligning with the growing demand for sustainable and ethical skincare. From the Hydrating Night Serum to the Gentle Foaming Cleanser, each product is designed to cater to diverse skincare needs. Brooklyn and Bailey Skin Care isn't just a brand; it's a testament to the twins' dedication to empowering individuals to embrace their natural beauty and foster confidence through effective, science-backed skincare solutions.
+https://beautysalonorbit.com/brooklyn-and-bailey-skin-care/
